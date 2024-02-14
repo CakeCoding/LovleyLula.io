@@ -1,1 +1,8 @@
-# LovleyLula.io
+# LovleyLula.io![hearts](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/f4f35ae9-479c-4567-a32e-8dd0c2333bc8)
+![catyes](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/0746b698-d39a-4392-a5f0-fa9e20856ead)
+![cat](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/87322bda-8e22-4f10-8512-2b690225a07c)
+![hug](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/68f39ebf-3738-438a-aae4-7a6785c3389d)
+![mini-heart](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/b4407ba0-6105-4bcb-938b-1e726f84034a)
+![penguin](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/f24a2d2b-4c6f-413b-a17f-34c0a650fae3)
+![omw](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/db7b9cb3-dd53-41ec-a0b8-22e5f97eb005)
+![penguin2](https://github.com/CakeCoding/LovleyLula.io/assets/160079008/34102755-799c-4b78-b33d-f1e621a9799f)
